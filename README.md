@@ -1,2 +1,2 @@
-# AhmedSamy
+# Ahmed Samy
 Ahmed Samy Portfolio
